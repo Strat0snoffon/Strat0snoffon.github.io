@@ -1,1 +1,2 @@
-# Strat0snoffon.github.io
+# Xol-OS
+very nive operating sytsem yyayy
